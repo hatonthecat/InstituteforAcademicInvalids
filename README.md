@@ -10,7 +10,7 @@ https://www.theatlantic.com/magazine/archive/2024/12/meritocracy-college-admissi
 
 https://www.nytimes.com/2024/11/14/opinion/yale-ivy-league-liberals-democrats.html
 
-Lateral Thinking
+Lateral Thinking/Weaving
 ---
 
 https://en.wikipedia.org/wiki/Edward_de_Bono
